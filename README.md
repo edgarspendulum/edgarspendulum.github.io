@@ -1,2 +1,0 @@
-# edgarspendulum.github.io
-proyecto
